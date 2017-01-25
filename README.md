@@ -1,3 +1,3 @@
 Our list of grievances:
 
- - Laura is jealous that I discover all the good music
+ - Laura is jealous that Zach discovers all the good music

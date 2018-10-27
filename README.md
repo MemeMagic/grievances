@@ -5,3 +5,5 @@ Our list of grievances:
   - No Laura is annoyed that Zach is obnoxious about it
 
  - Dom got spicy level 0 at Krishna
+
+ - Kurt didn't know how to spell my last name
